@@ -1,4 +1,4 @@
-# I QUIT
+# Hackintosh Everyday.
 
  
 
